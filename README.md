@@ -1,2 +1,2 @@
 # Hebe
-Hebe is a 6-th lard
+Hebe is a 6-th toad
