@@ -1,2 +1,2 @@
 # Hebe
-Hebe is a 6-th kozdel
+Hebe is a 6-th 2kozdel
