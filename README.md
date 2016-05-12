@@ -1,3 +1,3 @@
 # Hebe
-Hebe is a 6-th ddog
+Hebe is a 6-th deeeer
 
