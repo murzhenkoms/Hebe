@@ -1,3 +1,3 @@
 # Hebe
-Hebe is a 6-th deeer
+Hebe is a 6-th deeeer
 
