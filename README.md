@@ -1,3 +1,3 @@
 # Hebe
-Hebe is a 6-th deeeer
+Hebe is a 6-th buck
 
